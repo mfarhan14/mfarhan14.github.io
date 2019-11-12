@@ -1,2 +1,2 @@
-# mfarhan14
+# mfarhan14.github.io
 kita pasti bisa
